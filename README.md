@@ -1,0 +1,1 @@
+# Informacje oglne o projeckcie 
